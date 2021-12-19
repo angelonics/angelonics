@@ -5,3 +5,6 @@ Ohayo!
 
 My contacts:
 - Discord: angelonīcs#6073
+
+
+# I am planning to commit suicide in the close future. Not sorry about making you sad :o
